@@ -1,1 +1,0 @@
-# vnoj-badge
